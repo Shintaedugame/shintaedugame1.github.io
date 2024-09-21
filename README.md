@@ -1,0 +1,1 @@
+# shintaedugame1.github.io
